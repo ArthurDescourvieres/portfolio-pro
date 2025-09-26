@@ -1,0 +1,1 @@
+Je ne veux pas que tu codes mais que tu m'expliques, nous sommes justes dans la théorie pour l'instant.
